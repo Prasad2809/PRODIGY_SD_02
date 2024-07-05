@@ -16,7 +16,7 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 # Contact Information
 For any inquiries or collaborations, feel free to reach out:
 * Email: prasadshinde0428@gmail.com
-* LinkedIn: https://www.linkedin.com/in/richa-jadyal-68b138259/overlay/about-this-profile/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BufmLBAuSSLGOs0Ha32GYdA%3D%3D
+* LinkedIn: https://www.linkedin.com/in/prasad-shinde-b0167328b/
 
 # Reference
 You may visit my LinkedIn post to refer.
